@@ -1,1 +1,1 @@
-**compra verificada 
+compra verificada 
